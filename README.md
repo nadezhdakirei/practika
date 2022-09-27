@@ -1,4 +1,4 @@
-# practika
+# practika 2курс
 иср 1.1, 1.2   https://drive.google.com/open?id=1o8Yub1ZJEhlXpXDcUpEoaNbLRA2JzHiK
 
 
